@@ -5,7 +5,7 @@ eden / mira⠀20⠀he/they
 <p align="center">
 taken 11.01.23
 <p align="center">
-enby lesbian and yumeshipper
+enby lesbian and yumeshipper + CEO of kromdon
 <br/><br/><br/>
 <p align="center">
 byi -⠀im shy and i dont like approaching first usually
