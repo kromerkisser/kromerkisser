@@ -11,6 +11,8 @@ enby lesbian and yumeshipper + CEO of kromdon
 byi -⠀im shy and i dont like approaching first usually
 <p align="center">
 i also really like project moon (mainly limbus + lobcorp)
+<p align="center">
+also feel free to sign my strawpage and atabook
 <br/><br/><br/>
 <p align="center">
 i don't really have a dni other than the usual criteria
