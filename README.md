@@ -23,3 +23,5 @@ fucking freak around me.
 <br/><br/><br/>
 <p align="center">
 kromer yume (extreme selective) we kiss under moonlight
+<p align="center">
+also make sure to check my rentry for my artfight this year.  thx
