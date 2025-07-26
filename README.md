@@ -6,7 +6,6 @@ eden / mira⠀21⠀he/they
 taken 11.01.23
 <p align="center">
 enby lesbian and yumeshipper + CEO of kromdon
-<br/><br/><br/>
 <p align="center">
 look at my pronouns cc page for more
 
