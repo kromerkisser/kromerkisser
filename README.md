@@ -8,20 +8,5 @@ taken 11.01.23
 enby lesbian and yumeshipper + CEO of kromdon
 <br/><br/><br/>
 <p align="center">
-byi -⠀im shy and i dont like approaching first usually
-<p align="center">
-i also really like project moon (mainly limbus + lobcorp)
-<p align="center">
-also feel free to sign my strawpage and atabook
-<br/><br/><br/>
-<p align="center">
-i don't really have a dni other than the usual criteria
-<p align="center">
-and anything omori related,⠀i hide freely.⠀just don't be a
-<p align="center">
-fucking freak around me.
-<br/><br/><br/>
-<p align="center">
-kromer yume (extreme selective) we kiss under moonlight
-<p align="center">
-also make sure to check my rentry for my artfight this year.  thx
+look at my pronouns cc page for more
+
