@@ -3,5 +3,5 @@
 <p align="center">
 eden / mira⠀21⠀he/they
 <p align="center">
-enby lesbian and yumeshipper + CEO of kromdon
+enby lesbian oc x cc enthusiast and CEO of kromdon
 
