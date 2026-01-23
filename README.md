@@ -5,4 +5,4 @@ eden / mira⠀21⠀he/they
 <p align="center">
 enby lesbian oc x cc enthusiast and CEO of kromdon
 <p align="center">
-look at strawpage for more info.  feel free to sign my atabook
+multiple links for you to choose from for you to get to know me better.
